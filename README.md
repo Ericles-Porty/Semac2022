@@ -4,4 +4,4 @@ Material utilizado no minicurso sobre maratonas de programação da VIII SEMAC (
 
 Link da gravação do dia 10/11: https://drive.google.com/file/d/1KksrWVBo5t0yvjEtiKOt8S_8ewxAtAWU/view?usp=sharing
 
-Link da gravação do dia 11/11: TBA
+Link da gravação do dia 11/11: https://drive.google.com/file/d/1JGX6G421325e4oRzFiaHrogcP1KwB2tg/view?usp=sharing
